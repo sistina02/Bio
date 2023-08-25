@@ -7,3 +7,5 @@ Pendidikan saya di Universitas Airlangga telah memberikan landasan kuat dalam pe
 Saya percaya bahwa inovasi dan kolaborasi adalah kunci kesuksesan. Saya aktif dalam belajar dan berkontribusi di platform GitHub, serta berharap dapat terus berpartisipasi dalam proyek-proyek menarik dan produktif.
 
 Mari kita berkolaborasi dan membangun masa depan yang lebih baik melalui teknologi!
+
+Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/nabila-salvaningtyas/)ku ya.
